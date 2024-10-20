@@ -1,1 +1,1 @@
-# HTML-CSS-Y2-Term1
+# W2-S2 PRACTICE
